@@ -1,2 +1,2 @@
 # ktvktvv1.github.io
-123456
+google.com, pub-1094874383334426, DIRECT, f08c47fec0942fa0
